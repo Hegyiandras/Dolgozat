@@ -1,1 +1,1 @@
-# Dolgozat
+# Hegyi Péter András
